@@ -1,2 +1,2 @@
 APM全体工作人员热烈欢迎哈哈哥来访！
-![image](https://github.com/user-attachments/assets/3e7721ec-a655-4654-8141-e60ab03c2bd3)
+![image](https://github.com/user-attachments/assets/948c20a8-6118-473a-b91b-e0716eaa8f71)
